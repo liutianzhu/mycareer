@@ -124,10 +124,10 @@
 
 ---
 
-### CHANA Minsheng APLL Logistics (CMAL) | 副主任
+### CHANA Minsheng APLL Logistics (CMAL) | 重庆长安民生物流股份有限公司 | 副总监
 **在职时间**: 2009.10 - 2016.11  
 **工作地点**: 重庆  
-**职务**: 汽车制造业务部副主任
+**职务**: 汽车制造业务部副总监
 
 #### 工作责任
 1. **CHANA-Ford 入库物流项目**
